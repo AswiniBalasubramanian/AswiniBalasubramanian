@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AswiniBalasubramanian
-- 👀 I’m AI Native Product Designer & Builder
+- 👀 I’m AI Native Product Manager & Designer & Builder
 -  I'm currently a Lead Product Design - SAAS | B2B 
 - 🌱 I’m an Agentic leverager and Builder
 -  
